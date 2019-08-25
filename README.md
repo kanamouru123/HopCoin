@@ -5,4 +5,5 @@ But to love the outcomes of this cryptocurrency in the making.
 My email is kanamouru@gmail.com
 For tech Davy people with experience will help,
  investors,marketers,salesbreps,anyone who wants to be apart of this amazing cryptocurrency
-Emailbme and I'll get to you as soon as possible.
+Email me and I'll get to you as soon as possible.
+
